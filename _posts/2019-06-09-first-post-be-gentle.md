@@ -11,8 +11,6 @@ I was inspired to start it up by a recent blog post of my old coworker Evan (htt
 
 Thinking about it, I realized that I didn't really have any concrete goals that I wanted to work towards. I think this tends to lend itself to stagnation, and as a naturally lazy person I need some real motivation in order to even leave the house, let alone do anything mentally taxing. 
 
-***thinking in real time***
-
 So what kind of goals do I want to set? I want them to be acheivable by myself, and should be able to be accomplished in a few months at the most. I don't really care about progressing at work, so nothing on that front. Instead I'll focus on things I do in my spare time. 
 
 okay
