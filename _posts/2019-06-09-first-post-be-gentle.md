@@ -7,21 +7,22 @@ title:  "First Post Be Gentle"
 
 This page is meant more of a journal than anything else.
 
-I was inspired to start it up by a recent blog post of my old coworker Evan (https://irarelypostanything.tumblr.com/) on how writing has helped him think things through, as well as the now double UFC champ Henry Cejudo (lol).
-
-Henry was the youngest olympic wrestling gold medalist, and then went on to become a MMA champion, recently fighting through a sprained ankle and coming back from being dominated at the beginning of the fight. One of the commentators, Daniel Cormier, remarked that for someone to accomplish so much they have to constantly be setting goals. Win a gold medal, get into UFC. Become UFC champion, win another championchip at a different weight class.
+I was inspired to start it up by a recent blog post of my old coworker Evan (https://irarelypostanything.tumblr.com/) on how writing has helped him think things through, as well as the now double UFC champ Henry Cejudo (lol) being able to fight through advsersity and acheive greatness.
 
 Thinking about it, I realized that I didn't really have any concrete goals that I wanted to work towards. I think this tends to lend itself to stagnation, and as a naturally lazy person I need some real motivation in order to even leave the house, let alone do anything mentally taxing. 
 
 ***thinking in real time***
+
 So what kind of goals do I want to set? I want them to be acheivable by myself, and should be able to be accomplished in a few months at the most. I don't really care about progressing at work, so nothing on that front. Instead I'll focus on things I do in my spare time. 
 
 okay
 
 1.) Be able to do the splits
 	- I have very poor flexibility in my hips/legs due to sitting down my entire life- this is primarily motivated by wanting to improve my guard play in BJJ
+
 2.) Squat 225
 	- I've had this goal before and never lifted consistently enough to acheive it
+
 3.) Paint my Warhammer 40k models!
 	- I started back up my Word Bearers army and I've been too lazy to get them all painted up
 
